@@ -1,3 +1,3 @@
 # Aethiopia
 
-> The Ethiopia Super Group
+> **Ethiopian** Super Group
